@@ -1,1 +1,1 @@
-# Traning Level One
+# Training Level One
